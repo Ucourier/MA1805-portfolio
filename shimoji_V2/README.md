@@ -1,0 +1,1 @@
+This piece is primarily based on the older style of emojis around the start of smartphones all the way back in 2007. It is also based partially on chinese reaction images and kaomojis, which are both a large part of pop culture in their respective countries.
